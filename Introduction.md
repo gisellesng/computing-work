@@ -11,3 +11,9 @@ I am Giselle Sng, a student from Dunman High School.
 * Gaming
 * Reading comics
 * Watching videos
+##### My CCA which i really love ( i have the same CCA in primary and secondary school)
+VOLLEYBALL :D
+###### My favourite foods ( i burn my hand when i cook)
+* Maggie mee
+* Maggie mee
+* maggie
